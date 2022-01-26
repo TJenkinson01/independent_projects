@@ -1,2 +1,2 @@
 # independent_projects
-projects worked on independently
+projects worked on independently - all on going
